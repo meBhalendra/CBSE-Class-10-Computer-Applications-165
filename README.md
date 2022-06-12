@@ -1,1 +1,1 @@
-# cbse-class-10-computer-applications-165
+# CBSE-Class-10-Computer-Applications-165
